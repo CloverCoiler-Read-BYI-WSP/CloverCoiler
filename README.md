@@ -46,7 +46,7 @@ Fandoms/Franchises I'm in:
 - E-daters
 - under 16 years old
 - above 21+
-- fictokins or people who THINK they are the character and get uncomfortable when people joke about said character.
+- people who THINK they are the character and get uncomfortable when people joke about said character.
 - people who hide doubles
 - rude
 - people who block freely // sorry if i sit on you but you hid me it aint my fault twin. I usually hide people for 24 hours unless they've been rude to me or my friends.
