@@ -58,6 +58,7 @@ Fandoms/Franchises I'm in:
 - Copiers of me or my friends.
 - TARN/BUTTEROLL COOKIE/OR SKYWARPS - I just don't like those characters you can int if your a different skin or just not int at all, I really don't care.
 - Whispering me random stuff when I'm working on ponies and if I don't know them.
+- STRONG ON NO YOUTUBERS/TIKTOKERS, I DONT WANT TO BE RECORDED OR SCREENSHOTED.
   
 
   <img width="400" height="51" alt="image" src="https://github.com/user-attachments/assets/200b34bd-bbd1-41a0-8b15-e4845868c465" />
