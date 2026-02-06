@@ -3,12 +3,13 @@
 ## PLEASE DO NOT WHISPER ME IF I DON'T KNOW YOU I WILL HIDE YOU, YOU MAY WHISPER CROWNS ONLY DANKE.
 
 
+
 - Name: CloverCoiler or CloverCoils
 - Gender: Female // She/her/they/them
 - Age: 17 turning 18 in march.
 - Sexuality: Omnisexual, Demisexual, and Repricosexual.
 - Relationship: Single.
-- best friends: Xteraintor, Jazzr, CrabLover.
+- best friends: Xteraintor, Mach, CrabLover.
 - Disabilites (actually diagnoised by a professional doctor): ADHD and ASD.
 - I use tonetags.
 - IMPORTANT!! BELOW!!
