@@ -13,7 +13,8 @@
 
 - ˗ˏˋ the ponies I will usually be when online in Ponytown! [still working on the Dusttown version !]
 
-<img src="https://media.discordapp.net/attachments/1322370560100929568/1470110541031669791/my_usual_skins.png?ex=698a1aa2&amp;is=6988c922&amp;hm=ac0869f9eb34d44743edfbf418696975bc0c1135ebaab5ed82a61eeea64e3435&amp;=&amp;format=webp&amp;quality=lossless&amp;width=831&amp;height=831" alt="Image"/><img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/7dee959f-b306-435d-aded-fe3bd86ab198" />
+<img src="https://media.discordapp.net/attachments/1322370560100929568/1470110541031669791/my_usual_skins.png?ex=698a1aa2&amp;is=6988c922&amp;hm=ac0869f9eb34d44743edfbf418696975bc0c1135ebaab5ed82a61eeea64e3435&amp;=&amp;format=webp&amp;quality=lossless&amp;width=831&amp;height=831" alt="Image"/>
+
 
 ## do not copy or take inspo from my ponies please!
 
