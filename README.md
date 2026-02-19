@@ -12,10 +12,6 @@
 
 
 
-- ˗ˏˋ the ponies I will usually be when online in Ponytown! 
-
-<img src="https://media.discordapp.net/attachments/1322370560100929568/1472077097399746590/SAVE_AND_FUCKING_STAY_ON_GITHUB.png?ex=69914221&amp;is=698ff0a1&amp;hm=c7cfe50fe11ce04e7ad510b366e22d4b768f3eee03d1af9b345e8de933ab6746&amp;=&amp;format=webp&amp;quality=lossless&amp;width=831&amp;height=831" alt="Image"/>
-
 - dusttown version of usual ponies
 
 <img width="670" height="670" alt="image" src="https://github.com/user-attachments/assets/db1512a4-150d-4f55-a45c-b77f8ea79fd8" />
