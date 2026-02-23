@@ -1,5 +1,6 @@
 <img width="2048" height="171" alt="image" src="https://github.com/user-attachments/assets/8f5cce87-f7fc-4126-b8a4-4ba1223a0aa3" />
 
+- if i accidently followed you on any platform do note: IT WAS A MISTAKE!!! IM SO SORRY IF I MADE ANYONE UNCOMFY!! sorry! please block me if I accidently follow you. I have shaky hands and my mouse sucks. 
 ## About me!! Hiya!
 
 - ⟡ I am Seventeen years old.
