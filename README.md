@@ -21,3 +21,6 @@
 ## do not copy or take inspo from my ponies please!
 
 - my do not interact list is on my patreon! No I will not be using any pay walls for art, I don't think I'm that special.
+
+- <img src="https://i.pinimg.com/736x/a2/28/db/a228dbefaac259262d3833fc3e8939c2.jpg" alt="Story pin image"/>
+
