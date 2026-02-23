@@ -24,3 +24,6 @@
 
 - <img src="https://i.pinimg.com/736x/a2/28/db/a228dbefaac259262d3833fc3e8939c2.jpg" alt="Story pin image"/>
 
+<img src="https://i.pinimg.com/736x/10/07/01/100701fd79a529025c5aad407b1100c3.jpg" alt="Story pin image"/>
+
+<img src="https://i.pinimg.com/736x/08/43/60/0843608544506c874f10077f77e0bc1e.jpg"/>
