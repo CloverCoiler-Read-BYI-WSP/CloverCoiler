@@ -30,6 +30,9 @@
 <img width="240" height="47" alt="image" src="https://github.com/user-attachments/assets/557c9031-cb85-40c3-9ac6-30751e65dd0a" />
 <img width="240" height="47" alt="image" src="https://github.com/user-attachments/assets/f1a0028b-8644-4249-8c18-54b7d525c612" />
 <img width="240" height="47" alt="image" src="https://github.com/user-attachments/assets/fde1042f-7590-4ef8-bbcb-36c14505edfb" />
+<img width="240" height="47" alt="image" src="https://github.com/user-attachments/assets/cef2109c-558f-4344-b5d8-8db5aab77c69" />
+<img width="240" height="47" alt="image" src="https://github.com/user-attachments/assets/2058e222-8079-4cb2-8c59-449c8d525ba4" />
+
 
 
 <p align="center">
@@ -40,6 +43,9 @@
 <img width="240" height="47" alt="image" src="https://github.com/user-attachments/assets/149dd005-2fbf-472f-bd7e-0ca1771b1b1d" />
 <img width="240" height="47" alt="image" src="https://github.com/user-attachments/assets/29c91b9a-8c91-4bd6-b73a-2c5ded4e1615" />
 <img width="240" height="47" alt="image" src="https://github.com/user-attachments/assets/3bee393e-b3b7-4a40-8210-2dbcb390659f" />
+<img width="240" height="47" alt="image" src="https://github.com/user-attachments/assets/3a6ad267-f2f2-4fae-9433-a8a160d52497" />
+<img width="240" height="47" alt="image" src="https://github.com/user-attachments/assets/7700b4ee-8f43-45cc-9bee-7bf00ba6e104" />
+
 
 <p align="center">
   I procrasinate a lot, so if you see a wip and see its a wip days later just know.
@@ -62,6 +68,8 @@
 <img width="240" height="47" alt="image" src="https://github.com/user-attachments/assets/9d0216ba-9da3-4874-aa55-a50ac91f2947" />
 <img width="240" height="47" alt="image" src="https://github.com/user-attachments/assets/8f19e071-a03d-4604-88e4-4397b553089e" />
 <img width="240" height="47" alt="image" src="https://github.com/user-attachments/assets/4e814d6b-0826-4c5c-9efb-6a4a5553bb62" />
+<img width="240" height="47" alt="image" src="https://github.com/user-attachments/assets/e3c98bdf-2a17-41db-8f12-132c11ab5907" />
+
 
 <img width="2048" height="209" alt="image" src="https://github.com/user-attachments/assets/52281002-f392-4d73-93a4-e7ed5d148fa9" />
 
@@ -149,7 +157,7 @@
 
 <img src="https://media.discordapp.net/attachments/1332179203592028222/1475654692838051871/211239350.png?ex=699e4607&amp;is=699cf487&amp;hm=8d752657d0bff523ee43cddf095c01a512a5a3121e52701d5923128f9adefc21&amp;=&amp;format=webp&amp;quality=lossless&amp;width=633&amp;height=633" alt="Image"/>
 
-- the best art one of my friends gave me. <3
+- the best art one of my friends gave me. <3 Danke Xteraintor @Searing_flames
 
 
 
