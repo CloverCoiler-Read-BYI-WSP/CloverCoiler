@@ -91,6 +91,13 @@
 - boundries breakers.
 - outside of my fandoms.
 
+## IMPORTANT DNI = STRAIGHT UP HIDING.
+- joking about grape and S3xual assault or abuse.
+- being weird and inapproiate with me.
+- joking about loving kids in a s3xual way.
+
+
+
 <img width="2048" height="74" alt="image" src="https://github.com/user-attachments/assets/25536b5c-42d6-4532-a9dc-ccc9c952847c" />
 
 ## Playlist: 
@@ -140,6 +147,9 @@
 - Ekho / Crabgirl
 - Kars / Karl
 
+<img src="https://media.discordapp.net/attachments/1332179203592028222/1475654692838051871/211239350.png?ex=699e4607&amp;is=699cf487&amp;hm=8d752657d0bff523ee43cddf095c01a512a5a3121e52701d5923128f9adefc21&amp;=&amp;format=webp&amp;quality=lossless&amp;width=633&amp;height=633" alt="Image"/>
+
+- the best art one of my friends gave me. <3
 
 
 
