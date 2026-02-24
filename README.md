@@ -1,3 +1,4 @@
+## hey so like, self diagnosis is like super bad, don't do it. serious. 
 <p align="center">
   I'm sorry if I followed you at some point, I didn't mean to follow you, please do not cause drama. Danke.
 </p>
