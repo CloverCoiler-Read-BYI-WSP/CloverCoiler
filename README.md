@@ -1,4 +1,4 @@
-## hey so like, self diagnosis is like super bad, don't do it. serious. 
+## hey so like, self diagnosis is like super bad, don't do it. serious. Reasons on why its bad: https://health.clevelandclinic.org/dangers-of-self-diagnosis
 <p align="center">
   I'm sorry if I followed you at some point, I didn't mean to follow you, please do not cause drama. Danke.
 </p>
